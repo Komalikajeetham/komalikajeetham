@@ -1,5 +1,5 @@
 ## 💫 About Me:
-👋 Hi, I’m  @KomalikaJeetham<br>🌱 I’m currently learning Tech skills<br>📫 How to reach me...LinkedIn
+👋 Hi, I’m  @KomalikaJeetham<br>🌱 I’m currently learning ...<br>📫 How to reach me...LinkedIn
 
 
 ## Skills:
